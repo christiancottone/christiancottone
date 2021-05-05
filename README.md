@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @christiancottone
+- 👀 I’m interested in become a Software Master
+- 🌱 I’m currently learning
+- 💞️ I’m looking for a mentor 
+- 📫 Reach me at christian.j.cottone@gmail.com
